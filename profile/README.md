@@ -4,7 +4,7 @@
 
 貝殼放大股份有限公司成立於 2014 年 10 月，是臺灣第一間也是最大的群眾集資顧問公司。至今協助超過 300 個團隊實踐夢想，累積集資金額超過 21 億元。提供的服務包含：初期的專案評估、市場調查、策略設定；製作期的影片拍攝、文案創意、商業設計；行銷面的廣告投放、社群經營、公關操作、客戶服務等，為集資提案者解決過程中的各種問題和需求。貝殼放大輔導的專案集資成功率達 9 成以上，平均單案集資金額超過 400 萬元，其中超過 30 件是破千萬案件。
 
-在 2020 年，《[#TaiwanCanHelp｜集資刊登紐約時報全版廣告：台灣人寫給世界的一封信](https://taiwancanhelp.us/)》、《[魔法阿媽 23 週年電影數位修復集資計畫](https://wabay.tw/projects/23anniversarycrowdfunding?locale=zh-TW)》、《[十二夜 2](https://www.backer-founder.com/projects/169)》動保教育推廣計劃、《[Cubiio 2 世界最薄金屬雕刻機｜雷射切割機](https://www.zeczec.com/projects/cubiio2)》、《[大象杯 2 代](https://www.zeczec.com/projects/elephantcuppa2)》、《[SwitchBot 智慧開關機器人](https://www.zeczec.com/projects/switchbot-button)》等深具社會意義或新奇有趣的產品集資計劃，皆有貝殼放大的參與。
+在 2020 年，《[#TaiwanCanHelp｜集資刊登紐約時報全版廣告：台灣人寫給世界的一封信](https://taiwancanhelp.us/)》、《[魔法阿媽 23 週年電影數位修復集資計畫](https://wabay.tw/projects/23anniversarycrowdfunding?locale=zh-TW)》、[《十二夜 2》動保教育推廣計劃](https://www.backer-founder.com/projects/520)、《[Cubiio 2 世界最薄金屬雕刻機｜雷射切割機](https://www.zeczec.com/projects/cubiio2)》、《[大象杯 2 代](https://www.zeczec.com/projects/elephantcuppa2)》、《[SwitchBot 智慧開關機器人](https://www.zeczec.com/projects/switchbot-button)》等深具社會意義或新奇有趣的產品集資計劃，皆有貝殼放大的參與。
 
 2017 年參與台北世大運品牌網路行銷亦有出色表現，售票比例創下夏季世大運有史以來最高紀錄。之後陸續提供多家跨國上市櫃企業＆公部門品牌顧問或整合行銷服務，合作夥伴包含：美國運通、星展銀行、桂冠、樂天、台灣小米、霹靂布袋戲、台灣櫻花、聲林之王、衛福部、台北市觀傳局⋯⋯。
 
