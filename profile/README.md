@@ -11,3 +11,12 @@
 ## 經營理念
 
 貝殼放大是一家群眾集資／群眾募資顧問公司。我們提供網路行銷規劃，幫有目標的人找資源，幫有資源的人找方法，幫有方法的人省時間！我們解決集資疑難，你們專注產品開發／議題深耕，一起讓美好放大發生！
+
+## 網站作品
+
+| | | |
+| -- | -- | -- |
+| [![CleanShot 2021-09-24 at 15 48 55](https://user-images.githubusercontent.com/1897143/134638340-094d7141-9480-4c12-8e3c-69deec5c376c.gif)](https://2020.report.crowdwatch.tw/) | [![image](https://user-images.githubusercontent.com/1897143/134621639-05d53a59-8371-41a2-b6cd-3b609b807517.gif)](https://lifesastrugglefilm.com/)| [![CleanShot 2021-09-24 at 15 51 58](https://user-images.githubusercontent.com/1897143/134638729-1bfcab74-41fc-4c9e-9d5c-68c93fbe548a.gif)](https://taiwancanhelp.us/) |
+| [![CleanShot 2021-09-24 at 15 55 57](https://user-images.githubusercontent.com/1897143/134639250-ba6b8afe-b599-4afc-b0ff-c2a00a081d5b.gif)](https://www.junglevoicewar.tw/race/) | [![CleanShot 2021-09-24 at 13 01 12](https://user-images.githubusercontent.com/1897143/134620829-3242b73e-79f5-4a9c-926c-858cba17a922.gif)](https://getthehellout.backer-founder.com/) | [![CleanShot 2021-09-24 at 13 13 42](https://user-images.githubusercontent.com/1897143/134621911-a180a542-9ffa-4cc4-b114-f8a44b791306.gif)](https://floatingdreams.tw/) |
+| [![image](https://user-images.githubusercontent.com/1897143/134620916-c7785597-896f-4882-943d-6b502a91ac26.gif)](https://en.backer-founder.com/) | [![image](https://user-images.githubusercontent.com/1897143/134621347-1401f818-a41b-4d38-b014-696d43e0cea6.gif)](https://crowdfunding.wordgame.cc/) | [![CleanShot 2021-09-24 at 15 45 36](https://user-images.githubusercontent.com/1897143/134637900-afe49dce-d6c2-4a67-a9c1-c55af4b7695b.gif)](https://gogoroism.com/) |
+| [![image](https://user-images.githubusercontent.com/1897143/134621469-ba9cb036-ca08-4f4c-89b8-f5b658d37d8a.gif)](https://crowdfunding2020.arrc.tw/) |
